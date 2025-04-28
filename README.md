@@ -1,0 +1,1 @@
+index ini berisi tentang sedikit biografi dari saya.
