@@ -1,1 +1,1 @@
-index ini berisi tentang sedikit biografi dari saya.
+index ini berisi tentang sedikit biografi dari pogacar.
